@@ -47,6 +47,6 @@ Making Connect's game streams use fewer bits at the same quality.
 
 ### Contact
 
-[iletisim@nightdijital.com](mailto:iletisim@nightdijital.com) · [nightdijital.com](https://nightdijital.com)
+[ethemmehmetmvs@gmail.com](mailto:ethemmehmetmvs@gmail.com) · [nightdijital.com](https://nightdijital.com)
 
 Türkçe yazabilirsin, Türkçe cevap veririm.
